@@ -4,3 +4,7 @@ Complete a or an for the following words.
 3.It's _______ useful machine.
 4.I'm _______ waiter.
 5.Do you have _______ umbrela?
+nooooooooooo
+ooooo coautor
+
+acal os
